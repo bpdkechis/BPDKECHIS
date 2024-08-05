@@ -1,7 +1,7 @@
 # ˚₊‧꒰ა ♱ ໒꒱ ‧₊˚
-「 🦚 」https://falsejustice.carrd.co/
+https://falsejustice.carrd.co/ ☆⌒(ゝ。∂)
    
 please don't copy my skins !
 c + h is okay !!
 
-![aven](https://github.com/bpdkechis/BPDKECHIS/assets/168991205/4fe8087c-1fd6-4fef-b286-794ce6da2617)
+![Crow_Finishing_Touch (1)](https://github.com/user-attachments/assets/cb87577f-6746-4769-8994-142ae355b940)
